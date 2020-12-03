@@ -1,0 +1,1 @@
+keret_beadanado
